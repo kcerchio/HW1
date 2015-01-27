@@ -1,2 +1,0 @@
-Kyle Cerchio
-Chicago Cubs
